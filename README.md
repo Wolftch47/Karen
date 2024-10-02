@@ -1,2 +1,2 @@
-# Karen Lizarazu
+# Karen Lizarazu Colque
 # Diego Gonzales Taylor
